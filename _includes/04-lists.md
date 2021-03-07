@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Hot Ones
+2. WoW
+3. Dogs
